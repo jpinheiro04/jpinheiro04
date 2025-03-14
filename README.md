@@ -1,4 +1,4 @@
-### Olá, eu sou o Juan Carlos Carvalho Bissoli Pinheiro. 👋
+### Olá, eu sou o Juan Carlos. 👋
 
 ### Tenho 20 anos e faço faculdade de Sistemas de Informação.
 ### Falo três idiomas Português, Inglês e Espanhol.
