@@ -1,6 +1,6 @@
-### Olá, eu sou o Juan Carlos. 👋
+### Olá, me chamo Juan Carlos Carvalho Bissoli Pinheiro. 👋
 
-### Tenho 21 anos e faço faculdade de ADS/SI.
+### Tenho 21 anos e faço faculdade de ADS/SI na ITE.
 ### Falo três idiomas Português, Inglês e Espanhol.
 ### Adoro Musica, Jogos, Séries e Filmes.
 
